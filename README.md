@@ -1,4 +1,4 @@
-## # Hi, I'm Abdulkader Kharrat 👋
+##  Hi, I'm Abdulkader Kharrat 👋
 
 ## About Me
 
